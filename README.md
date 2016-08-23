@@ -1,1 +1,1 @@
-# RGP
+# RG Precision Dental Arts
